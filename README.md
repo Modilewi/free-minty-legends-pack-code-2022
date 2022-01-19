@@ -1,2 +1,5 @@
-# free-minty-legends-pack-code-2022
-List of Free Minty Legends pack codes 2022 that work in PS4 and XBOX no verification
+# List of Free Minty Legends pack codes 2022 that work in PS4 and XBOX
+
+List of Free Minty Legends pack codes 2022 that work in PS4 and XBOX no verification - There are two currencies in this Minty Legends pack. Letter of credit is the main currency, and cash is the premium of the two currencies. Save your reputation and money so you can use them to buy new characters or buy new skill upgrades for your current characters at a cheaper price. With enough skill upgrades, even Eddie greckson can be as good as a real-life skater. In order to get free money, complete the task. Each group of three tasks will win you a cash reward for completing the task. If you run out of tasks, buy more roles, because each role has its own task. In addition, you can also go to the free fee area of the in app store to earn some free fees through discounts or watching advertising videos. Try to complete as many skills as possible without falling, even if you have to do fewer total skills to do this. When you fall, you waste about 5 seconds trying to get up, and when you fall with 4 seconds or less left, you're finished. However, whenever you complete the skill set, you will get some of your time back. The bigger the combination, the more you get in return.
+
+<a href="https://appkithelp.icu/minty-legends/">Go here</a>
